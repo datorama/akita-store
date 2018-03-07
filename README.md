@@ -1,3 +1,3 @@
-![themify](https://preview.ibb.co/hnO2Cn/akita.png)
+![themify](https://preview.ibb.co/cxB6oS/akita.png)
 
 coming soon...
